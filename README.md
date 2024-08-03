@@ -2,4 +2,4 @@
 # Introduction
 Hello.
 I use GitHub sometimes.
-If you need to contact me my discord is jordon#3332
+If you need to contact me my discord is onlyjordon
